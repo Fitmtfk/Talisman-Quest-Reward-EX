@@ -2,6 +2,10 @@
 based on Talisman Quest Reward
 
 link:https://www.nexusmods.com/monsterhunterrise/mods/111
+
+I also uploaded it.
+
+link:https://www.nexusmods.com/monsterhunterrise/mods/2349
 ****
  **NEW FEATURE**
 
